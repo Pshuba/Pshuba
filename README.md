@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...exploring new tech
 - 🌱 I’m currently learning ...HTML
 - 💞️ I’m looking to collaborate on ...ORGs work
-- 📫 How to reach me ...Shubham653686@gmailcom
+- 📫 How to reach me ...Sm653686@gmail.com
 - 😄 Pronouns: ...Shubham
 - ⚡ Fun fact: ...
 - When i am angry ...i am a Roaster
